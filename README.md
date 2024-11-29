@@ -11,7 +11,7 @@
 
 - my website [https://twross.xyz](https://twross.xyz)
 
-- 💬 Ask me about **17 age**
+- 💬 Ask me about **18 age**
 
 - 📫 How to reach me **a0975901055@gmail.com**
 
